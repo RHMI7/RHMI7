@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RHMI7
+- 👋 Hi, I’m @RMHI7
 - 👀 I’m interested in socer walking music robots cars travel Electronic &....
 - 🌱 I’m currently learning AI programing 
 - 💞️ I’m looking to collaborate on AI  
